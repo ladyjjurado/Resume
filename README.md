@@ -14,7 +14,7 @@ I am a **Supply Chain and Logistics professional** with over 7 years of experien
 
 ## 🎓 Education
 * **Master's Degree in Project Management** – Universidad Tecnológica de Panamá
-* **Master's Degree in Supply Chain Management** – Universidad Tecnológica de Panamá
+* **Master's Degree in Supply Chain Management** – ENAE Business school
 * **Bachelor's Degree in English with an Emphasis on Translation** – Universidad Latina de Panamá
 
 ---
@@ -22,4 +22,4 @@ I am a **Supply Chain and Logistics professional** with over 7 years of experien
 ## 📄 Full Curriculum Vitae
 To explore my detailed professional background, key achievements, and references, you can download my complete resume here:
 
-👉 *[Download my Resume in PDF format]*([CV_Lady_Juliette_Jurado_English.pdf](https://github.com/user-attachments/files/29220116/CV_Lady_Juliette_Jurado_English.pdf)*
+👉 Download my Resume in PDF format ([CV_Lady_Juliette_Jurado_English.pdf](https://github.com/user-attachments/files/29220116/CV_Lady_Juliette_Jurado_English.pdf)*
