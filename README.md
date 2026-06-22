@@ -1,3 +1,4 @@
+[CV_Lady_Juliette_Jurado_English.pdf](https://github.com/user-attachments/files/29220116/CV_Lady_Juliette_Jurado_English.pdf)
 # Hi there! Welcome to my professional profile 👋
 
 I am a **Supply Chain and Logistics professional** with over 7 years of experience optimizing planning, sourcing, and operational execution processes. My focus is driven by process efficiency, strategic data analysis, and end-to-end project management.
